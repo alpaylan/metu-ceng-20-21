@@ -2,7 +2,7 @@
 
 ### Whatsapp Grubuna Giriş İçin Google Form Linki
 
-https://forms.gle/1V7PaGUv1PX4RLP89
+[Form İçin Tıklayınız](https://forms.gle/1V7PaGUv1PX4RLP89)
 
 ### SSS
 
